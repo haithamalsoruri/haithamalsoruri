@@ -20,8 +20,11 @@ Hi, I'm Haitham Al-Soruri (هيثم السروري)
 
 
 ⚙️ Interests
+
 •Wireless Network Design & Optimization.
+
 •Tech News & Digital Transformation.
+
 •Telecommunications History & Innovations.
 
 
